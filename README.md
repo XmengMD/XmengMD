@@ -1,2 +1,2 @@
-- 👋 Hi, I’m @XmengMD ,a Chinese.
+- 👋 Hi, I’m @XmengMD.
 - 📫 reach me at:  3039799714@qq.com
